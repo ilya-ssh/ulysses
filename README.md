@@ -6,8 +6,9 @@
 Генерация оставлять желать лучшего.
 
 Примеры генерации:
-He said that he was a bit too given him in the kitchen and the first socialist he always struck him and the arabs and the sentry of the pan opened the bed , carefully his mouth with his hands and scratched his gaze turned in the bed , the dictates of its own son , the first of the bed , the douce said , nodding curtly , in the company of glasnevin
 
-Stars were shining from the sun , the sun flung spangles , midnight returning out of the wind of the law , of the troubles . . . what did bloom do ?
+## He said that he was a bit too given him in the kitchen and the first socialist he always struck him and the arabs and the sentry of the pan opened the bed , carefully his mouth with his hands and scratched his gaze turned in the bed , the dictates of its own son , the first of the bed , the douce said , nodding curtly , in the company of glasnevin
 
-Dublin was especially there , the professor said , with a tree , boylan , the professor said , nodding with his voice . what did he say ? what did bloom ? 
+## Stars were shining from the sun , the sun flung spangles , midnight returning out of the wind of the law , of the troubles . . . what did bloom do ?
+
+## Dublin was especially there , the professor said , with a tree , boylan , the professor said , nodding with his voice . what did he say ? what did bloom ? 
